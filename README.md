@@ -1,6 +1,6 @@
-Contact Me 
-[Linkedin](https://www.linkedin.com/in/reza-sherafatpour/) 
+Contact Me: 
 
+[Linkedin](https://www.linkedin.com/in/reza-sherafatpour/) , 
 [Email](reza.sharafatpour@gmail.com)
 
 [Instagram](https://www.instagram.com/sherafatpour.r/) Account.
